@@ -1,9 +1,10 @@
 #Totto je jaaaaaahodka
 
-aaaaaakohdka
+aaaaaakohdkkkka
   fajna
-  cervena 
-  modra
-  perfektna <3
+  cervena ;;;;;;
+  modra""""""""
+  perfektna <3>>>>>>>>>>
   Toto uz bude naisto koniec
   Je vsetkemu koniec
+som spravil zmeny
