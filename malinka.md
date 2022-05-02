@@ -1,8 +1,8 @@
-#Totto je jahodka
+#Totto je jahodka#
 
-Malinka je:
-  fajna
+#Malinka bola:
+##  fajna
   cervena 
-  modra
+##  modra
   
- *vyborne chuti
+ *vyborne chuti - 
