@@ -1,6 +1,8 @@
-#Totto je jahodka
+#Totto je jaaaaaahodka
 
-Jakohdka je:
+Jakooooohdka je:
   fajna
   cervena 
   modra
+  
+  Toto uz bude naisto koniec
