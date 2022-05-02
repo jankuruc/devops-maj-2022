@@ -2,8 +2,9 @@
 
 aaaaaakohdka
   fajna
-  cervena 
-  modra
-  perfektna <3
+  cervena eeeeee
+  modra}}}}}}}}}}ffdff}}}
+  perfektna <3"""dfdffdfdfdfdf"""""""""""
   Toto uz bude naisto koniec
-  Je vsetkemu koniec
+  Je vsetkemdfdfu koniec
+fdjfddfjdfdfd
