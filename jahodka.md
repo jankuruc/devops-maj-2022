@@ -1,6 +1,9 @@
 #Totto je jahodka
 
-Jakohdka je:
-  fajna
+Jaaaaaaaaaaaaaaakohdka je:
+  fajna, moze byt dozreta :)
   cervena 
-  modra
+  modraaaaaaaaaaaa
+  perfektna <3
+  
+  Je vsetkemu koniec
