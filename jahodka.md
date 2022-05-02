@@ -1,8 +1,9 @@
 #Totto je jaaaaaahodka
 
-Jakooooohdka je:
+aaaaaakohdka
   fajna
   cervena 
   modra
-  
+  perfektna <3
   Toto uz bude naisto koniec
+  Je vsetkemu koniec
