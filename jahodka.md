@@ -17,3 +17,5 @@ fdjfddfjdfdfd
   Je vsetkemu koniec
 som spravil zmeny
 
+nova veta
+
