@@ -12,7 +12,7 @@ fdjfddfjdfdfd
 
   cervena ;;;;;;
   modra""""""""
-  perfektna <3>>>>>>>>>>
+  perfektna <3>>>>>>>>>>fdfdf
   Toto uz bude naisto koniec
   Je vsetkemu koniec
 som spravil zmeny
