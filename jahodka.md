@@ -19,3 +19,5 @@ som spravil zmeny
 
 nova veta
 
+novy branch
+
